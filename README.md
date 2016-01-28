@@ -1,4 +1,5 @@
 ### Writing 100 days
+#### Day 8 (2016/01/27): Rhetorical Move Structure
 #### Day 7 (2016/01/26): Facilitating Research Writing
 #### Day 6 (2016/01/25): Learnersourcing for Writing
 #### Day 5 (2016/01/24): Extracting Feedback with Global Concerns
