@@ -1,4 +1,5 @@
 ### Writing 100 days
+#### Day 9 (2016/03/10): Two Writing Strategies for Summarization
 #### Day 8 (2016/01/27): Rhetorical Move Structure
 #### Day 7 (2016/01/26): Facilitating Research Writing
 #### Day 6 (2016/01/25): Learnersourcing for Writing
